@@ -1,0 +1,2 @@
+# premium-gold-leaf-letter-001-gold-leaf-letter-glair-gildi
+Tired of scattered notes, forgotten techniques, and ruined gilding projects because you couldn't track your glair ratios and gold leaf applications? The Gold Leaf Letter &amp; Glair Gilding Craft Lab is your all-in-one Notion workspace designed specifically for illuminators and calligraphers who demand precision.  This isn't just another template—it's
